@@ -53,7 +53,7 @@ For any questions, collaboration opportunities, or feedback:
 
 **Nagesh**  
 📧 *rathlavathnagesh428@gmail.com*  
-🌐 *www.linkedin.com/in/nageshrathlavath*
+🌐 [My linkedin](www.linkedin.com/in/nageshrathlavath)
 
 ---
 
